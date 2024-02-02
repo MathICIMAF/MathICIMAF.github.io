@@ -1,1 +1,1 @@
-Admob and AppLovin app-ads.txt
+Ahmed Mansur Graverán ahmedlp9@gmail.com
